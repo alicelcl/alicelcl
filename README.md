@@ -9,3 +9,6 @@ Meu nome é Alice Delgado
 ### você pode entrar em contato comigo 📫
 
 00001095907645sp@al.educacao.sp.gov.br
+
+
+![](https://media1.tenor.com/m/MyepBVW2LNMAAAAd/charles-leclerc-bruh.gif)
